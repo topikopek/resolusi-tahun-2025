@@ -1,1 +1,1 @@
-semoga harapan kita semua bisa tercapai, dengan adanya niat untuk belajar dan konsisten, Amin
+resolusi atau harapan utuk kedepannya agar lebih baik di tahun ini
